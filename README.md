@@ -1,0 +1,2 @@
+# verifiq-STARTUP
+Traduzido PTBR
